@@ -1,3 +1,4 @@
 # Week01_Nhom10_MTN_ANDROID
 
-Nhóm chúng em học sáng thứ 7 ạ!!!
+![alt](https://github.com/Artmis23/Week01_Nhom10_MTN_ANDROID/files/8258561/picture_5UI.pdf)
+
